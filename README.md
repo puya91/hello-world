@@ -1,2 +1,3 @@
 # hello-world
 ideas, resources, and discuss things with others
+Helllllo good people, This is puya. Decent, smart puya...
